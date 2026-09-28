@@ -1,3 +1,3 @@
 hai dek aw aw 
 qiw qiw
-okoklah
+akh akh
